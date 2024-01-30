@@ -30,4 +30,4 @@ We're more than just a team – we're your creative partners. Let's make somethi
 - **Reach Out:** [contact@specto.cc](mailto:contact@specto.cc)
 ---
 
-© 2024 Specto Development & Design. Innovating One Pixel at a Time. All Rights Reserved.
+© 2024 Specto Development & Design. Elevating Brands with Powerful Visuals. All Rights Reserved.
