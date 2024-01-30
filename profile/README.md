@@ -1,7 +1,6 @@
-# Specto Development & Design 🚀
-
 ![Specto Development & Design Logo](img/SPECTO-logo-white.svg)
 
+# Specto Development & Design 🚀
 ## Elevating Brands with Powerful Visuals
 
 Hello! 👋
